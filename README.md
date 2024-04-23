@@ -19,4 +19,8 @@ grazyraissa7@gmail.com
 ![image](https://github.com/GraziellyRaissa1/carrosel-JavaScript/assets/147439694/d311b0d1-1b33-44dd-9e91-b85446417f91)
 
 
-![image](https://github.com/GraziellyRaissa1/carrosel-JavaScript/assets/147439694/417688bf-e00b-4b79-8b96-bf58430efff6)
+![image](https://github.com/GraziellyRaissa1/carrosel-JavaScript/assets/147439694/d97b96f6-730a-4a88-9d7a-c79f7cce7635)
+
+![image](https://github.com/GraziellyRaissa1/carrosel-JavaScript/assets/147439694/0ea03bc0-d76f-4cf1-93b9-5618d8335753)
+
+
